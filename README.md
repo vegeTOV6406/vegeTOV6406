@@ -1,2 +1,5 @@
-Chasin paper
-Not chasin bitches
+▲
+ 
+▲ ▲
+
+HOW THE FUCK THEY DID TRIFORCE ON 4CHAN
