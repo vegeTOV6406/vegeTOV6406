@@ -1,3 +1,2 @@
-- Лев. Hear my roar!
-- Делаю визуальные новеллы
-- Моя жизнь – нелепая шутка
+Chasin paper
+Not chasin bitches
